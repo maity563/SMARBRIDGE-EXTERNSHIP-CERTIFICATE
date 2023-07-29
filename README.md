@@ -1,0 +1,2 @@
+# SMARBRIDGE-EXTERNSHIP-CERTIFICATE
+![Certificate - SmartInternz_page-0001](https://github.com/maity563/SMARBRIDGE-EXTERNSHIP-CERTIFICATE/assets/105879104/36b9607e-c04a-4c6a-b64c-61caee84728f)
